@@ -1,1 +1,0 @@
-# karanasko.github.io
